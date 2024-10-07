@@ -1,6 +1,6 @@
 🤖 **Hello fellow Follower of the Great Machine!.** 🤖
 
-  While myy username is MonitoringLizard, i actually can go by the name  i created to use on the web, Raptop, just for you to know. I am a brazilian male, straight? (idk, i going through some existencial crisis) and human, for sure, for now i have 15 years of life! (i make 16 at 12/12).
+  While myy username is MonitoringLizard, i actually can go by the name  i created to use on the web, Raptop, just for you to know. I am a brazilian male, straight and human, for sure, for now i have [REDACTED] years of life! (i make [REDACTED] at 12/12).
   
   I have a dream of becoming a programmer, specialized in C, C++, Python and Rust. I want to become a gamedev in the future, or just ya know, program things for life, i love computers and lizards.
   
